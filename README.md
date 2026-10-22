@@ -1,4 +1,4 @@
-![divider](https://i.postimg.cc/vZRmBP0F/01-divider.png)
+![divider](https://i.postimg.cc/8PRmZGcn/Untitled452-20261015234924.png)
 <table align="center">
    <tr>
       <td width="400" align="center">
@@ -11,3 +11,9 @@
    ᣟ݂ ๑𓏼 ׅ 　 it its　 ͜𓏼˚̣̣̣꒱꒱　　 iwc ﹒ ͜͜ ᣟ݂  @thundiethor　　　　
     .˳˳.⋅ॱ　|͜͝ | ͜ㅤິㅤ @tricksterofasgard　𓏫⑅ osdd sys　　　　
      ceo of lokicest　𝀊　thorki enthusiast　　❤︎᭢˚̣̣̣͙͏
+
+<p align="center">
+ <img src="https://img.shields.io/badge/MISCHIEF-97A4AA?style=for-the-badge&labelColor=97A4AA">
+ <img src="https://img.shields.io/badge/GODNESS-FEBFCF?style=for-the-badge&labelColor=CBECB6">
+ <img src="https://img.shields.io/badge/PRINCESS-97A4AA?style=for-the-badge&labelColor=CBECB6">
+</p>
